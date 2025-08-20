@@ -5,7 +5,7 @@
 
 - 🌱 I’m currently learning **Data Science**
 
-- 📝 I regularly active on [instagram.com](instagram.com)
+- 📝 I am regularly active on [instagram.com](instagram.com)
 
 - 💬 Ask me about **Anime**
 
